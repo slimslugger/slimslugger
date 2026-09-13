@@ -33,4 +33,4 @@ alr that's all i love scout
     
 <p align="center">
   <img src="https://github.com/user-attachments/assets/79d7c9af-9837-45ae-be2c-c6cee024148a" width=30% />
-  <img src="https://github.com/user-attachments/assets/a99f81ec-f597-4472-a149-9884fff2304f" width=33% />
+  <img src="https://github.com/user-attachments/assets/a99f81ec-f597-4472-a149-9884fff2304f" width=30% />
