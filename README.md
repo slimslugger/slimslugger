@@ -22,10 +22,11 @@ here's some of my art cuz why not
  ----------------------------------------------------------------------------------------------------------------------
   
 <img width=60% alt="IMG_3260" src="https://github.com/user-attachments/assets/e409deb2-5459-491e-b781-5330ef3c9b3d" />
-  <img width=60% src="https://github.com/user-attachments/assets/9bfd26e0-e4af-4c94-b71d-79cfe3a752df" />
+  <img width=60% src="https://github.com/user-attachments/assets/86e74573-ae51-4876-8871-ebf4ec9d51b7" />
  <img width=60% src="https://github.com/user-attachments/assets/86c59c35-6738-4c13-bd27-b0c1b860bbe7" />
 
 <p align="center">
+
  ----------------------------------------------------------------------------------------------------------------------
 
 <p align="center">
