@@ -10,6 +10,9 @@ sup bruh, i'm ngl i don't have much to say lmao
 mostly into tf2, portal, gorillaz, and fighting games 👀 among a million other things
 
 <p align="center">
+for music, i fw blood cultures and math rock 😸
+
+<p align="center">
 here's some of my art cuz why not
 
 <p align="center">
